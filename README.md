@@ -1,0 +1,2 @@
+# HarakahDaily
+TEPAT DAN BENAR
